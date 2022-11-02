@@ -30,3 +30,5 @@ enter here
 
 22BCA024 PRITESH KUMAR
 8544685939/priteshk105@gmail.com
+
+22BCA004 Komal Singh
