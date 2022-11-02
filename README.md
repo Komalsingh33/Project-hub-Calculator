@@ -9,3 +9,6 @@ enter here
 
 22BCA069 Kovid Tripathi
 8577899447/officialkovid@gmail.com
+ 
+22BCA012 VINIT KUMAR
+7484018658/kalwarvinitjaiswal@gmail.com
