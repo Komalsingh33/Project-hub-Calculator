@@ -28,5 +28,5 @@ enter here
 22BCA046 Sanjay Dwivedi
 9125353235/sdiwedi640@gmail.com
 
-22BCA011 ATUL MISHRA
-9125382243\mishraaditi8707@gmail.com
+22BCA024 PRITESH KUMAR
+8544685939/priteshk105@gmail.com
